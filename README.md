@@ -6,4 +6,4 @@ Download the full game here:
 http://bit.ly/1Hv0a5W
 
 64 bit:
-https://www.mediafire.com/folder/f4kik3q5z723d/Camera
+http://bit.ly/1OrNeWt
